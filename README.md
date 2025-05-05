@@ -68,7 +68,7 @@
 </ul>
 <h2>📝 Cómo Usar el Código de Referidos Bitget</h2>
 <ol>
-<li>Visita <a href="https://www.bitget.com" target="_blank">bitget.com</a> o abre la app de Bitget</li>
+<li>Visita <a href="https://partner.bitget.com/bg/new1" target="_blank">bitget.com</a> o abre la app de Bitget</li>
 <li>Haz clic en <strong>“Registrarse”</strong></li>
 <li>Regístrate con correo electrónico o teléfono</li>
 <li>Introduce el <strong>código de referidos: <code>qsk6</code></strong></li>
