@@ -1,7 +1,7 @@
 <h1>Código de Referidos Bitget 2025: <code>BGB101</code> | Obtén Hasta 6.200 USDT en Bonos de Registro</h1>
 <p>¿Quieres comenzar tu aventura en el mundo cripto en 2025? <strong>Bitget</strong> ofrece uno de los paquetes de bienvenida más generosos para nuevos usuarios — y el <strong>código de referidos <code>BGB101</code></strong> es tu llave para desbloquear todos los beneficios.</p>
 
-<img src="https://images.mirror-media.xyz/publication-images/DpBCz_5vhMFNeNfR8IbP8.png" alt="Imagen referida" width="600">
+<img src="https://images.mirror-media.xyz/publication-images/H9upJfDmket0PIJitw5Jk.png" alt="Código de Referidos Bitget 2025" width="600">
 
 <h2>🎁 ¿Qué Obtienes con el Código <code>BGB101</code>?</h2>
 <ul>
